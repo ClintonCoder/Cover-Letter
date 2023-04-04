@@ -1,5 +1,5 @@
 # Cover-Letter
 
-Hi, Thank you for visiting and having a look at my cover letter.
+Hi, Attached in this repository is my Cover Letter. Thank you for visiting. 
 
 Clinton
