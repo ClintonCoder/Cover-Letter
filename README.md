@@ -1,9 +1,9 @@
 # Cover-Letter
 
-                                                                                     Clinton Opara
-                                                                                     Huddersfield HD1 1DT
-                                                                                     07749105678
-                                                                                     Clintonibo@gmail.com
+                                                                          Clinton Opara
+                                                                          Huddersfield HD1 1DT
+                                                                          07749105678
+                                                                          Clintonibo@gmail.com
 
 
 Tutorful  Sheffield
